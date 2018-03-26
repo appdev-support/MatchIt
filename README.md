@@ -1,4 +1,8 @@
 MatchIt
 =======
+Birds Links game. Easy to play and pleasurable game for all age.
+You can play games for FREE!
+There are three models in the game.
+Colorful birds are watting for your.
 
-连连看游戏iPhone版本-为妹妹做的游戏。
+connect：iegoodcd@gmial.com
